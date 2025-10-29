@@ -1,1 +1,0 @@
-# SEO-Title-Meta-Description-Checker
